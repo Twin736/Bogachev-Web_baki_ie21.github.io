@@ -1,1 +1,1 @@
-https://twin726.github.io/Lr1
+https://Twin726.github.io/Lr1
